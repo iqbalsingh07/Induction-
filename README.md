@@ -65,3 +65,12 @@ Chief Guest: S. Gurcharan Singh Grewal, Secretary- SGPC encouraged students with
 
 Interactive discussion sessions followed, where students reflected on their English & Maths proficiency test results from Day 3.
      
+## Induction Program Day 5
+
+The day began with an insightful expert lecture by Dr. Priyadarshini on Universal Human Values in the auditorium, guiding students towards a more conscious and value-based life.
+
+Gautam Sir, one of our esteemed seniors, shared his journey in Motorsports, inspiring young minds with passion and grit.
+
+The Causmic Club team also showcased their vibrant initiatives, giving freshers a glimpse into creativity, leadership, and innovation. +
+
+Meanwhile, Peer-to-Peer sessions and interactive classes by senior students and faculty ran in parallel, making learning collaborative and engaging.
