@@ -52,4 +52,16 @@ Dr. Arashdeep Singh on "Food: A Pivotal Role in Student's Overall Wellness"
 English & Maths Proficiency Tests were conducted for all streams to assess foundational skills.
 
 Buddy4Study team guided students on scholarship opportunities for 1st year.
+
+## Day 4
+
+A day full of inspiration, interaction, and introspection for our CSE & IT freshers!
+
+Dr. Jaswinder Singh (renowned for JaswinS Lab on Wheels) brought Physics & Maths to life through fun, simplified experiments and demonstrations.
+
+Dr. Priya Darshni continued with "Universal Human Values - 1", enriching young minds with clarity and purpose.
+
+Chief Guest: S. Gurcharan Singh Grewal, Secretary- SGPC encouraged students with his motivating words.
+
+Interactive discussion sessions followed, where students reflected on their English & Maths proficiency test results from Day 3.
      
