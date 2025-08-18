@@ -53,7 +53,7 @@ English & Maths Proficiency Tests were conducted for all streams to assess found
 
 Buddy4Study team guided students on scholarship opportunities for 1st year.
 
-## Day 4
+## Day 4 Induction programme 
 
 A day full of inspiration, interaction, and introspection for our CSE & IT freshers!
 
